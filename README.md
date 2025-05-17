@@ -13,10 +13,11 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
 
 ~~:tennis: Playground : https://dayfly.kr/~~
 
 ~~:space_invader: Hobby : https://hush.moe~~
+-->
+
 
 :mailbox_with_mail: Contact Email : answlgus1122@gmail.com
